@@ -1,2 +1,0 @@
-# Eftemie-Cristina-Florentina
-Tema
